@@ -1,2 +1,2 @@
 # tylecacuoc
-cập nhật thông tin tỷ lệ cá cược
+cập nhật thông tin <a href="http://vbet79.net/1gom/"> 1gom </a>
